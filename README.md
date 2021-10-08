@@ -9,3 +9,5 @@
 ### “Happiness is not something readymade. It comes from your own actions.”-Dalai Lama
 
 ### “Happiness is not something readymade. It comes from your own actions.”-Dalai Lama
+
+### "If you continue to think the way you've always thought, you'll continue to get what what you've always got." - Kevin Trudeau
